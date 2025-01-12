@@ -3,7 +3,7 @@
 🇬🇧 Green Jacket Boy is the username directly related to Yann B., you can consider this Github profile, as containing all the project to which I'm okay being directly associated to.
 
 Contacts : 
- - Linkedin : https://www.linkedin.com/in/yann-b-6585732ab/
+ - Linkedin : https://www.linkedin.com/in/green-jacket/
  - Mail : greenjacketboy@proton.me
 
 <!---
